@@ -2,7 +2,7 @@
 
 Welcome to the Brassmen Page! :wave:
 
-Here you'll find the music to join our horn line. To get access, email andrewcarvajal38@gmail.com for full access on the sheet music.
+Here you'll find the music to join our Drum Corp. To get access, email andrewcarvajal38@gmail.com for full access on the sheet music.
 
 If you're having trouble navigating the website, or can't wait, try our google Links!
 But be warned, copying will include a watermark, so be sure to ask to have access for full resolution!
