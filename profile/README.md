@@ -1,4 +1,4 @@
-# Westchester Brassmen
+# The Westchester Brassmen
 
 ## Welcome to the Brassmen Page! :wave:
 
