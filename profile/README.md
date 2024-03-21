@@ -8,10 +8,10 @@ Here you'll find the music to join our horn line. To get access, email andrewcar
 But be warned, copying will include a watermark, so be sure to ask to have access to the full resolution!
 Google link: Click Below!
 
-*Trumpets
-*Mellophones
-*Baritones
-*Tubas
+* Trumpets
+* Mellophones
+* Baritones
+* Tubas
 
 
 <!--
