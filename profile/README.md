@@ -6,7 +6,7 @@ Here you'll find the music to join our horn line. To get access, email andrewcar
 
 If you're having trouble navigating the website, or can't wait, try our google Links!
 But be warned, copying will include a watermark, so be sure to ask to have access for full resolution!
-Google link: Click Below!
+Google Drive links: Click Below!
 
 * [Trumpets](https://drive.google.com/drive/folders/12c7ol0IFWiMb2DCbQ12asw5yshgkU8yh?usp=sharing)
 * [Mellophones](https://drive.google.com/drive/folders/1-8i6fJA6lI0ohvhziHqkqf5V9QrzKihq?usp=sharing)
