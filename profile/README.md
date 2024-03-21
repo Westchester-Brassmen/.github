@@ -1,6 +1,6 @@
 # Westchester Brassmen
 
-Welcome to the Brassmen Page!
+Welcome to the Brassmen Page! :wave:
 
 Here you'll find the music to join our horn line. To get access, email andrewcarvajal38@gmail.com for full access on the sheet music.
 
